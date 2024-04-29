@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @Rafaeltaichicoach
-- 👀 I’m interested in wellness life in more than one area. Phisically like a Coach im interest in Martial Arts, specially on Taichi. Mindly, im interested in Art, i like paints and music the most. And in finantial area, i like digital business and habilities, like Trading, Criptotrading, and Digital Marketing.
-- 🌱 I’m currently learning Taichi, Taichi Chuan and Taichi Qi Gong. Im learning Trading and Criptotrading too and Investing activities.
-- 💞️ I’m looking to collaborate on Wellness things for more and more people, and how to earn more money in independents business
+- 👋 Hi, I’m @Rafaelpartnertrader
+- I'm learning how to move myself into Git hub system. trying to learn Python programming, anf i'm also an advanced Trader that know how to Invest in Finantial Market so im able to Teach more people helping with my habilities in Trading.
+- That's what i want to do, helping more and more people in Trading with my personal systems, where i know i will help them in order to have better results with both them time and my knowledge.
 - 📫 How to reach me?... you can reach me on my webpage,https://go.libertex-affiliates.com/visit/?bta=44960&nci=20881 subscribe and let me a message, we can still talking.
 
 <!---
